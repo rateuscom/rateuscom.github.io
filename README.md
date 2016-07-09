@@ -1,2 +1,2 @@
 # rateuscom.github.io
-Your reviews &amp; feedback really matter.
+http://rate.us.com
